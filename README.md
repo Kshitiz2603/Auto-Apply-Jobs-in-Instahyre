@@ -1,1 +1,1 @@
-# Auto-Apply-Jobs-in-InstahyreH
+# Auto-Apply-Jobs-in-Instahyre
